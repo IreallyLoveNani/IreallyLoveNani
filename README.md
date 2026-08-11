@@ -3,7 +3,7 @@
 
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
-‎  ‎ ‎ ‎ ‎ 　　　　　　　　　　　　　　　　im revamping this
+‎  ‎ ‎ ‎ ‎ 　　　　　　　　　　　　　　　　im revamping this , I cant tag my friends cus they dont have GitHub aaaaa
  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎　　　　　　　　　　　　　　　　　　　　prono[uns.cc](https:https://pronouns.cc/@Piplashmsmlover) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎𓏵 ‎ ‎ ‎ ata[b✩ok](https://ilovepunkleton.atabook.org)
 
 
